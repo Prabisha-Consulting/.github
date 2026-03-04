@@ -1,4 +1,4 @@
-# 🚀 Prabisha Consulting Pvt. Ltd.
+# 🚀 Prabisha Consulting
 
 **Empowering Businesses with Technology, AI, and Digital Growth**
 
